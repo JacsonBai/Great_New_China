@@ -1,5 +1,5 @@
 # 
-	The New China is greate!
+	The New China is great!
 
 # youtube
 	https://www.youtube.com/watch?v=ijpzFZlQ3O0
